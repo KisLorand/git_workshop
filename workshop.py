@@ -1,0 +1,3 @@
+# krumplifőzelék
+# macska
+# k utya
