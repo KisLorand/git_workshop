@@ -1,0 +1,4 @@
+# krumplifozelek
+# krumpli
+# és
+# főzelék
